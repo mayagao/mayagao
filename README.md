@@ -1,1 +1,1 @@
-👋💁🏻‍♀️Hi there, I'm a product designer passionate about bringing clarity to technical complexities and building foundations for early stage products. Learn more about my work [here](https://mayagao.com/). 
+👋 💁🏻‍♀️ Hi there, I'm a product designer passionate about bringing clarity to technical complexities and building foundations for early stage products. Learn more about my work [here](https://mayagao.com/). 
